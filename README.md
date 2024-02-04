@@ -8,5 +8,5 @@
 - 💬 Ask me about ... beer, cheese, how to pair beer and cheese
 - 📫 How to reach me: ... carrier pigeon
 - 😄 Pronouns: ... I have no pronouns, please do not refer to me
-- ⚡ Fun fact: ... 
+- ⚡ Fun fact: ... cheetahs can purr like a housecat
 -->
