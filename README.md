@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-Dustin Feldt
-CSS Student at UW Tacoma
+Dustin Feldt <br>
+Computer Science Student at UW Tacoma <br>
